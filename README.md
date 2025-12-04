@@ -1,0 +1,2 @@
+# SIGED.certificado.preparatoria.autenticacion.PIPK070502HMCXZVA4
+PIPK070502HMCXZVA4
